@@ -44,4 +44,4 @@ Hi, I’m **Kino Xuan** 👋
 - 物理背景 + HRBP 经验 → 用系统论思维解决组织难题  
 - 信念：**一起为中国制造做些事儿** 💡  
 
-© 2025 Kino Xuan | Building bridges between **talent** and **technology**  
+© 2026 Kino Xuan | Building bridges between **talent** and **technology**  
